@@ -5,5 +5,5 @@ home![Screenshot (35)](https://user-images.githubusercontent.com/68967050/195741
 add to chart![Screenshot (39)](https://user-images.githubusercontent.com/68967050/195741151-a2e53662-e72f-40fa-908b-e0182734ec73.png)
 ![Screenshot (40)](https://user-images.githubusercontent.com/68967050/195741170-1013af2b-1901-42ce-9f35-7c0fd82c7a76.png)
 ![Screenshot (41)](https://user-images.githubusercontent.com/68967050/195741183-0633ee01-119d-4af2-9943-e69dc7e96f4e.png)
-check out![Screenshot (37)](https://user-images.githubusercontent.com/68967050/195741886-625cbba4-53ba-40ff-b0e5-47bbf2de3c61.png)
+check out ![Screenshot (43)](https://user-images.githubusercontent.com/68967050/195742019-142242fa-dbd9-46d7-b22e-8a8893726c9d.png)
 thanks for order![Screenshot (42)](https://user-images.githubusercontent.com/68967050/195741735-f28377ee-e1ee-4bc8-ba80-31f7a9f88ac8.png)
